@@ -1,5 +1,5 @@
 # fatass solutions
 
-- cracking shit software ever since slaves worked on the fields voi
+- cracking shit software ever since slaves worked on the fields lmao!
 
-![(https://count.nekooftheabyss.moe/get/fatasssolutions/img?theme=gelbooru)]
+![:name](https://count.getloli.com/get/@:FatassSolutions)
